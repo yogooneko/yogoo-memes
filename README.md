@@ -5,7 +5,7 @@ the cat who minted nothing, but became everything.
 
 ### 💤 First Meme  
 
-![first meme](./yogoos.png)
+![first meme](./yogoos.PNG)
 
 From soft paws to digital claws. 
 Soft fur. Loud pump.
