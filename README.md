@@ -5,31 +5,37 @@ the cat who minted nothing, but became everything.
 
 ### 💤 First Meme  
 
-![first meme](./yogoo_profile_.png)
+![first meme](./yogoos.png)
+
+From soft paws to digital claws. 
+Soft fur. Loud pump.
+Yogoo lives on Base.
+
+![2th meme](./yogoo_profile_.png)
 
 This isn’t just a meme.
 This is Yogoo — a real cat, turned onchain fluffball.
 #YOGOO is live on Base 🐾
 
-![second meme](./yogoo2.png)
+![3th meme](./yogoo2.png)
 
 Hi i’m Yogoo.
 i do nothing.
 i pump sometimes.
 follow me if u like naps 😼💤
 
-![third meme](./yogoo2.png)
+![4th meme](./yogoo2.png)
 
 you minted frogs and dogs.
 but not yogoo?
 she saw that. 👁️
 
-![fourth meme](./yogoo4.png)
+![5th meme](./yogoo4.png)
 
 touch grass?
 nah. she hugged a fish instead. 🐟
 
-![fifth meme](./yogoo2.png)
+![6th meme](./yogoo2.png)
 
 wake up, it’s still sunday.
 yogoo is watching. 🐾
