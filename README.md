@@ -24,7 +24,7 @@ she saw that. 👁️
 touch grass?
 nah. she hugged a fish instead. 🐟
 
-![fifth meme](./yogoo4.png)
+![fifth meme](./yogoo2.png)
 
 wake up, it’s still sunday.
 yogoo is watching. 🐾
