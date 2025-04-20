@@ -1,4 +1,9 @@
-## 🐾 Yogoo Meme Gallery
+## 🐾 YOGOO Meme Gallery
+
+Welcome to the official meme archive of Yogoo —  
+the cat who minted nothing, but became everything.
+
+### 💤 First Meme  
 
 ![first meme](./yogoo_profile_.png)
 
