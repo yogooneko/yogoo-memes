@@ -12,7 +12,7 @@ Soft fur. Loud pump.
 Yogoo lives on Base.
 
 
-![first logo](./yogoofirstlogo.pmg)
+![first logo](./yogoofirstlogo.png)
 mint: ✅
 logo: ✅
 sleep: always ✅
