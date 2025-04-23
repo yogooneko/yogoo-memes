@@ -11,11 +11,20 @@ From soft paws to digital claws.
 Soft fur. Loud pump.
 Yogoo lives on Base.
 
+
+![first logo](./yogoofirstlogo.pmg)
+mint: ✅
+logo: ✅
+sleep: always ✅
+roadmap? she ate it. 🐟💤
+
+
 ![2th meme](./yogoo_profile_.png)
 
 This isn’t just a meme.
 This is Yogoo — a real cat, turned onchain fluffball.
 #YOGOO is live on Base 🐾
+
 
 ![3th meme](./yogoo2.png)
 
@@ -24,16 +33,19 @@ i do nothing.
 i pump sometimes.
 follow me if u like naps 😼💤
 
+
 ![4th meme](./yogoo2.png)
 
 you minted frogs and dogs.
 but not yogoo?
 she saw that. 👁️
 
+
 ![5th meme](./yogoo4.png)
 
 touch grass?
 nah. she hugged a fish instead. 🐟
+
 
 ![6th meme](./yogoo2.png)
 
